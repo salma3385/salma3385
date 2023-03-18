@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on my portifolio. 
+Hi
 
 
 ## 🌐 Socials:
